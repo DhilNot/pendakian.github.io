@@ -1,1 +1,0 @@
-# pendakian.github.io
